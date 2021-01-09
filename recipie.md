@@ -1,0 +1,1 @@
+First you put the sugar in. Then you pour in the butter and the egg. Then you mix and put vanilla extract. After that you put flour in. Then you mix it aand put it on a tray. Finaly you bake it and eat it.
